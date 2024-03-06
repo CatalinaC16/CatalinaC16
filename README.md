@@ -2,5 +2,5 @@
    
    🦋 This is my portofolio 
    
-   🎓 I am pursuing a bachelor degree in Computer Science. 
+   🎓 I am pursuing a bachelor degree in Computer Science.  -`♡´-
 
